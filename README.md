@@ -31,5 +31,4 @@ Thank you for reviewing my submission!
 
 For any inquiries or feedback regarding this project, please contact:
 D BHOOPESH
-- <a>[Shantanu Pandey ](https://www.linkedin.com/in/shantanu-pandey22/)(LinkedIn)</a>
-- Email: shantanupandey223@gmail.com
+- Email:dbhoopesh1@gmail.com
